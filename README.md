@@ -1,0 +1,2 @@
+# freja-emma
+Amatör
